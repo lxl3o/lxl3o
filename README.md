@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @lxl3o
 - 👀 I’m interested in i love old rich blondes with money
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 🌱 I’m currently learning best p1 in the world
+- 💞️ I’m looking to collaborate on trap 
+- 📫 How to reach me Dubai
+- Philosophical phrase: the greater the mass, the greater the attraction
 - ![](https://media.tenor.com/0dWCainfP_oAAAAC/toyota-supra-supra.gif)
 
 <!---
